@@ -1,2 +1,0 @@
-# chuu-shin.github.io
- 
